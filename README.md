@@ -2,7 +2,7 @@
 calculator
 
 
-simple calculator.
+simple calculator..
 ds..
 sigh wla pa gyapon naobra kag natapos. busy ambi. e.
 Hello future self. you're already starting working now as an IT SUPPORT DESdKSIDE ENGINEER AT BLADEGRASS TECHNOLOGY AND WAS ASSIGNED AT CONCENTRIX ILOILO
