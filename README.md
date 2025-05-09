@@ -15,7 +15,7 @@ March 17, 2025 11:48 overtime ty naman, pag abot ko ari di si kekel, manang lyn,
 
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay..
 
-March 27, 2025. Duty naman
+March 27, 2025. Duty naman..
 jw
 
 xd
