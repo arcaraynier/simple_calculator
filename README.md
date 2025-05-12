@@ -1,5 +1,5 @@
 # simple_calculator
-calculator
+calculator.,.
 
 ..
 simple calculator..
