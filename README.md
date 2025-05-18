@@ -5,7 +5,7 @@ calculator.,.
 simple calculator..
 ds...,.,,.sd....
 sigh wla pa gyapon naobra kag natapos. busy ambi. e.happy
-Hello future self. you're already starting working now as an IT SUPPORT DESdKSIDE ENGINEER AT BLADEGRASS TECHNOLOGY AND WAS ASSIGNED AT CONCENTRIX ILOILO
+Hello future self. you're already starting working now as an IT SUPPORT DESdKSIDE ENGINEER AT BLADE..GRASS TECHNOLOGY AND WAS ASSIGNED AT CONCENTRIX ILOILO
 you have colleagues such as Gerry, Renz Aivan ( which will be retiring in the next wecxek monday, he is the senior tech support for iloilo, then the two OJT from UI will be finishing this. and alexander which started from last month of february. eeeds.......
 
 May 1, 2025 - Hello self. you promise yourself you wanted to be web developer just like lerry, he started as jr web developer. make progress each day and be consistent. thanks.
